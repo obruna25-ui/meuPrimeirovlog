@@ -1,5 +1,5 @@
 # meuPrimeirovlog
-Sou estudante do colegio Andreatta, tenho 15 anos sou amiga de geral a 
+Sou estudante do colegio Andreatta, tenho 16 anos sou amiga de geral a 
 maioria me congece como bruh,gosto de tocar estrumentos e cantar,e sonho 
 em ser veterinaria.
   
